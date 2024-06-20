@@ -5,3 +5,5 @@ Contact Me:
 Discord: seeking_.
 
 Mail: seekersadvantage@yahoo.com
+
+.gg/zdh79wvQPR
